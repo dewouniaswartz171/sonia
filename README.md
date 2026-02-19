@@ -1,4 +1,4 @@
-Hi im sonia swartz 
+Hi im Sonia Dewounia Swartz
 
 ABOUT ME!
 It learnership student 
