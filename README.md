@@ -15,3 +15,5 @@ Goals.
 Finish my IT learnership
 Become a Fronted Developer
 Build real projejects
+
+Email:dewouniaswartz171@gail.com
